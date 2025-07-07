@@ -28,4 +28,4 @@ FC2私人投稿精选：素人系作品多，内容新颖，适合喜欢真实�
 🛡️ 合法性说明与风险提醒
 本页面不存储或传播任何视频内容，仅整理网络可访问站点索引。建议支持正版内容平台如 FANZA、DLsite 等，既保障浏览安全，也能支持女优和制作方合法收入。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/aivi7932/23434 ）</span>
